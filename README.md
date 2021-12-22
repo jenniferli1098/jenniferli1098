@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+- 😄 Pronouns: she/her
+- 🌱 Plant and cat mom
+
+Thank you [Ava Pun](https://github.com/avalovelace1) for the amazing profile picture!
 <!--
 **jenniferli1098/jenniferli1098** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
