@@ -2,6 +2,7 @@
 
 - 😄 Pronouns: she/her
 - 🌱 Plant and cat mom
+- 📚 Fun fact: I love reading and teaching! Which is why I started the [Arctic Reading Circle](https://arcticreadingcircle.org/)
 
 Thank you [Ava Pun](https://github.com/avalovelace1) for the amazing profile picture!
 <!--
